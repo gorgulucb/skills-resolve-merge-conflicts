@@ -1,3 +1,3 @@
 # References
 
-* Octocat 2
+* Octocat 2 :)
